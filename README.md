@@ -1,1 +1,1 @@
-# heroes-krystian-oliwier
+# heroes-pair-krystian-oliwier
